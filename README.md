@@ -1,2 +1,2 @@
 # Daniel_Gay_mer_Transs
-um site sobre Oeiras pi, nesse site tera um pouco da cultura,origem e sobre os patrimonios de oeiras.É um site simples mais por causa da incompetencia do grupo que ficou com preguiça de deixar mais bonitinho
+Um site sobre Oeiras–PI. Nesse site haverá um pouco sobre a cultura, a origem e os patrimônios de Oeiras. É um site simples, mas isso aconteceu porque o grupo ficou com preguiça de deixá-lo mais bonito.
